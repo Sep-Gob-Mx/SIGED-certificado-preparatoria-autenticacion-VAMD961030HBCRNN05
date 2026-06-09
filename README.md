@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAMD961030HBCRNN05
+VAMD961030HBCRNN05
